@@ -20,6 +20,7 @@
 * 3/9 марта [*Лекции 5/6*](https://app.conceptboard.com/board/k6gh-7ko0-6s4m-brck-7yfh)
 * 15 марта [*Лекция 7*](https://app.conceptboard.com/board/84uo-cm6f-csdp-b0qf-qi45)
 * 16 марта [*Лекция 8*](https://app.conceptboard.com/board/xtez-25ob-08b5-7hz2-m53x)
+* 20 апреля [*Лукция 15*](https://app.conceptboard.com/board/eb6g-390t-783x-q6k8-g2xi)
 
 ### **Практики**
 
